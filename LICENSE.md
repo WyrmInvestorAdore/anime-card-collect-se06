@@ -1,4 +1,4 @@
-#  
+#  anime card collection secure Scripts is the best anime card collection Script, featuring auto-upgrade and no clip. Safe and powerful for all your
 
 
 
